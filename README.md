@@ -1,1 +1,1 @@
-Good Information Technology
+https://pastebin.com/2CtaDKsP
